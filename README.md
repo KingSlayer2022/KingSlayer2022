@@ -2,7 +2,7 @@
 - 👀 I’m interested in NFT Generation
 - 🌱 I’m currently learning Data Science
 - 💞️ I’m looking to collaborate on NFT Projects
-- 📫 How to reach me ...
+- 📫 You can mail me on Bestfriends8290@gmail.com
 
 <!---
 KingSlayer2022/KingSlayer2022 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
